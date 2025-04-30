@@ -3,7 +3,7 @@
 🧠 Life Science Professional <br/>
 👨‍🔬 Biomedical research 🔬 <br/>
 🔰 Learning Programming & Web Development 💻<br/>
-🕴️ Into business, private equity, venture capital and technology transfer 💰<br>
+🕴️ Into entrepreneurship, private equity, venture capital and technology transfer 💰<br>
 🎹 Love house, disco, funk & old skool hiphop 🎤 <br/>
 
 
