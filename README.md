@@ -1,4 +1,4 @@
-## Hello, Warsame Ahmed M. Ali 🇳🇴 🇸🇴
+## Hello, Warsa here 🇳🇴 🇸🇴
 
 🧠 Life Science Professional <br/>
 👨‍🔬 Biomedical research 🔬 <br/>
